@@ -1,3 +1,4 @@
 # BAP22_LUCAS_900YKUURNE
 
-Go to wiki for info
+Ga naar wiki voor de blog + info
+Volg deze link voor planning: https://app.asana.com/0/1203394188443050/calendar
